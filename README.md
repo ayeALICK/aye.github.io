@@ -1,1 +1,0 @@
-# bishmality.github.io
